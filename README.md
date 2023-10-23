@@ -1,1 +1,1 @@
-# theessence.github.io
+# The Essence
